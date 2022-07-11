@@ -8,12 +8,9 @@ Venue: To be updated
 
 The first offline event of Trash Again season 10 - Collection Day 2022 has officially begun accepting applications and promises to bring a lot of interesting things to participants. Now, let TAP tell you about the activities you shouldn't miss on Collection Day 2022!
 
-Pangolin's journey to find her home through a series of activities on Collection Day 2022 consists of 3 main parts: PREPARATION - FESTIVAL - MOMENT.
-
+Pangolin's journey to find her home through a series of activities on Collection Day 2022 consists of 3 main parts: PREPARATION - CELEBRATION - MOMENT.
 Starting with the "Preparation" activity, participants will collect, clean, and furnish a home for Pangolin by gathering used materials.
-
-After making thorough preparations, we will proceed to the main activity - Festival. TAP will exchange the scrap paper that you bring for high quality gift bags. If you can help the environment, while also receiving special goodies, then why hesitate to bring a lot of paper to Collection Day? 
-
+After making thorough preparations, we will proceed to the main activity - CELEBRATION. TAP will exchange the scrap paper that you bring for high quality gift bags. If you can help the environment, while also receiving special goodies, then why hesitate to bring a lot of paper to Collection Day? 
 Finally, Collection Day 2022 will end with the “Moment” activity. Let's save the momentous memories of the journey to find a home for Pangolin at the check-in photo booth that TAP has prepared to commemorate the companions on their way to find their own home. Trash Again believes that, through the series of exciting activities and careful preparation from the organizers of Collection Day 2022, you will have an unforgettable experience this summer. So, hurry up and fill out the application form to participate in Collection Day 2022 so that you won't miss anything from TAP house!
 ________________________
 Contact information:
